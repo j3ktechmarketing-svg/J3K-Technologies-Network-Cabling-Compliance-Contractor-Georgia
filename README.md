@@ -47,6 +47,6 @@ At **J3K Technologies**, our goal is to enhance network performance and ensure e
 
 Whether your organization needs office cable inspection, compliance testing, or round-the-clock structured cabling installation for hospitals, **J3K Technologies** has you covered. As a leading **Cable Inspection Services for Offices Service Provider Georgia**, trusted **Network Cabling Compliance Contractor Georgia**, and reliable **Structured Cabling for Hospitals 24/7 Installation Partner Georgia**, we ensure every client experiences connectivity built for the future.  
 
-Choose reliability, compliance, and performance—choose **J3K Technologies**.
+Choose reliability, compliance, and performance-choose **J3K Technologies**.
 
 ---
